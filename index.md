@@ -1,4 +1,4 @@
-# This is aplaceholder github for Lethal Hub
+# This is a placeholder github for Lethal Hub
 You should join our [discord](http://www.discord.gg/5z86vpW) and check out my [thread for Lethal Hub](https://v3rmillion.net/showthread.php?tid=265926)
 
 >"It's less cancer" - river58
