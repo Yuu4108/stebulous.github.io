@@ -1,5 +1,7 @@
-# Parallax
+## Social Links
+* [Twitter](http://clkmein.com/qAeWE6)
+* [YouTube](http://clkmein.com/qAtLnY)
+* [VidMe](http://clkmein.com/qAtLXd)
+* [Discord Fan Server](http://clkmein.com/qAeRTx)
 
-This is my shotty page for my level 7 exlpoit.
-
-## Preorders - $30 (When Sales Are On)
+> For business inquiries, DM my twitter.
